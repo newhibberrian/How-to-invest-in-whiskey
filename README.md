@@ -1,2 +1,10 @@
 # How-to-invest-in-whiskey
-How to invest in whiskey new hibberrian whiskey advisory
+How to invest in whiskey has been trending since a decade and people are resorting to this option for investment due to high returns and ample opportunities. With the huge attention that whiskey casks have gained since a few years, there are also some points that need to be considered before you opt for how to invest in whiskey. 
+If you are a first timer, looking to invest in whisky, then here are a few quick tips for you. Be aware of these few points when you enter into this market. So, here it goes –
+How to invest in whiskey understand flipping –
+Flippers are those who buy limited releases of whiskey and sell them shortly with an intention to make huge profits after the stock sells out. Flippers do not consider the craftsmanship and tradition when it comes to buying and selling whiskey, which can be frustrating at times. However, the best option is to have patience and wait for the right time to buy and avoid the flippers.
+Be Aware of how to invest in whiskey–
+As the demands for bottles rise, the scammers see an opportunity and make fake bottles of whiskey available in the market. The best thing to do in such a situation is keeping track of the rare bottles in the industry and if you are totally new, don’t feel ashamed to ask for a second opinion from the experienced ones.
+Store properly how to invest in whiskey–
+The quality of unopened whiskey stays good for a longer period of time. However, it is still important to properly store whiskey bottles so that no harm is caused to the whiskey. If the bottles are solely bought for investment purposes, they should not be opened in any case. Additionally, they should be stored upright to avoid contact between the cork and the spirit inside.
+With these 3 tips we end this blog here and promise to bring you 3 more interesting tips for your first time investment journey in whiskey casks. No need to be worried or scared about the factors out there that can harm you. We are here to keep you aware about what not to do when you invest in whiskey for the very first time. Stay connected with New Hibernian Whiskey Advisory and you won’t have to worry about your investment journey. 
